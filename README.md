@@ -1,6 +1,6 @@
 - 🙂Hello my Name Is WE_Fix
 - 🎨I am 12 years old
 - 🧐interested in cyber security
-- 📫To contact me write to me on Discord
+- 📫To contact me write to me on Discord (tag: we_fix2)
 - 🇬🇧🇷🇺I understand Russian and English languages
 - 😊Thanks for reading this!
